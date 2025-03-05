@@ -1,1 +1,2 @@
 # Fernando-Boudourian-un-c-digo-de-recuerdos
+Las fiestas de quince son como un código bien estructurado: cada imagen es una línea de programación que guarda emociones y momentos únicos. La entrada de la homenajeada, el vals, el brindis, todo queda registrado en una secuencia de instantes irrepetibles. La fotografía transforma la lógica de los recuerdos en un archivo visual que puede abrirse una y otra vez. La memoria se compila en imágenes.
